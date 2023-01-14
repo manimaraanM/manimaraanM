@@ -4,7 +4,7 @@
 
 ⚡ Fun fact: Love to go on long drives and playing games
 
-<Profile under construction 😄😄😄>
+📫 Reach me: maranjoy@gmail.com
 
 
 <!--
