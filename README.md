@@ -1,4 +1,11 @@
-### Hi there 👋
+### Hi there 👋, I am Manimaran, thanks for reading my profile.
+
+🌱 I’m currently learning Backend Development.
+
+⚡ Fun fact: Love to go on long drives and playing games
+
+<Profile under construction 😄😄😄>
+
 
 <!--
 **manimaraanM/manimaraanM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
